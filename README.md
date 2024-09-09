@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @davdj4 otherwise know as David
+- 👀 I’m interested in Geo Drupal AI SaaS and everything in between.
+- 🌱 I’m currently learning about everything in between.
+- 💞️ I’m looking to collaborate on creating some magic ✨
+- 📫 You can reach me at davidj4@gmail.com
+- ⚡ Fun fact: That's where the magic happens! 🪄
